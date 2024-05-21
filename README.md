@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @el-l33v
-- 👀 I’m interested in ... Modding for games
+- 👀 I’m interested in ... Modding games
 - 🌱 I’m currently learning ... How to make gtag mods
 - 📫 How to reach me... Comment on my yt or dm me on discord (@el_l33v)
 - 😄 Pronouns: ... He/Him
